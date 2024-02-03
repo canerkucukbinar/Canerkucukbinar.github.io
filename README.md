@@ -1,1 +1,0 @@
-# Canerkucukbinar.github.io
